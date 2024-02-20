@@ -7,7 +7,7 @@
 
 - 🌱 I’m currently learning **C language**
 
-- 💬 Ask me about **Anything but, life.**
+- 💬 Ask me about **Anything but life.**
 
 - 📫 How to reach me **muhammadspeaks@hotmail.com**
 
